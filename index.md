@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+This is the freaking blog, Fellas.
 
-Maybe say a some things about yourself.
+Since graduating, I've developed a keen interest in the history of the world. I'm putting together a "book", and figured I'd post sections as I write them. You can follow along here!
 
-Or maybe what you plan to blog about.
+
