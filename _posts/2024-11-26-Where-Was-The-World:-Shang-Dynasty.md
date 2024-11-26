@@ -33,5 +33,4 @@ These cities served as administrative, religious, and military hubs. There was n
 Then by the late 11th century BCE, the Shang faced internal strife, economic challenges, and external threats. In 1046 BCE, The Zhou Dynasty, a rival kingdom, overthrew the Shang in the Battle of Muye. According to tradition, the last Shang king, King Zhou (Di Xin), was a tyrannical ruler whose mismanagement contributed to the dynasty's downfall. 
 
 The Shang Dynasty laid the foundation for many aspects of Chinese civilization, including centralized rule, written language, and religious practices. Much of this influence was absorbed into global civilization. This dynasty marked the beginning of a continuous historical record in China, with the Shang’s achievements influencing the succeeding Zhou Dynasty and subsequent Chinese dynasties.
-![image](https://github.com/user-attachments/assets/00f75300-5ba0-4d45-b709-b2193e71bfb4)
 
