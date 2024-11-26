@@ -1,4 +1,4 @@
-Shang Dynasty:
+**Shang Dynasty:**
 
 Let’s begin by setting the stage. To put it like the colloquial hockey-playing Canadian teenager, the rest of the world was _buzzing_ while the Jews were enslaved in Egypt. We just don’t tend to talk about anything more than a thousand kilometres outside the Levant region. 
 
